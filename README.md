@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me 184382@student.mau.edu.ng
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: football
+- ⚡ Fun fact: I love watching football at my leisure time
 
 <!---
 Skirtae-dev/Skirtae-dev is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
